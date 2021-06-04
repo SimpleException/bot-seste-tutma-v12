@@ -1,1 +1,1 @@
-# bot-seste-tutma-v12
+- Kullandığın için teşekkürler!
